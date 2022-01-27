@@ -11,4 +11,4 @@ My name is Isa, my pronouns are they/them, and I’m New York City based **devel
 
 ### You can find me 
 
-on [LinkedIn](https://www.linkedin.com/in/isa-Biramontes/), and my work on [my website](https://isabiramontes.me/), [instagram](https://www.instagram.com/isa.s_wearables/), and [Dribble](https://dribbble.com/isabiramontes).
+on [LinkedIn](https://www.linkedin.com/in/isa-Biramontes/), and my work on [my website](https://isabiramontes.me/), [instagram](https://www.instagram.com/isabiramontes/), and [Dribble](https://dribbble.com/isabiramontes).
